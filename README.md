@@ -1,4 +1,4 @@
-## Welcome to Heytomato0's Profile! 😁
+## Welcome to Heytomat0's Profile! 😁
 
  <div>
    <a href="https://github.com/Heytomat0">
